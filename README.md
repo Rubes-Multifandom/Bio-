@@ -1,6 +1,6 @@
 UPDATED!!
 # Bio-
-🦢| ⊹ ࣪ ˖ Rubes/Star ᯓᡣ𐭩 She/Her or They/Them ˚₊‧꒰ა ♱ ໒꒱ ‧₊ || Do not be freaky around me.. >:/ makes me uncomfy
+🦢| ⊹ ࣪ ˖ Rubes/Star ᯓᡣ𐭩 She/Her or They/Them ˚₊‧꒰ა ♱ ໒꒱ ‧₊ || Do not be freaky around me.. >:/ makes me uncomfy 
 
 Fandoms i am currently in: Dream game,Blocktales,Ninjago,Forsaken,Transformers,and Friday night funkin
 
@@ -18,3 +18,8 @@ I am okay with any oc x canon as long as they aren't problematic or weird. Other
 If i tend to hurt your feelings with a joke. Let me know. I dont really have DNT or DNIUF's because, they don't really bother me
 
 I will jump you if you disrespect me or my friends 🙂/Srs
+ Tends to yap about my OCs alot + Fandoms and stuff that happens. Sometimes i may be angry and might move away-
+
+ Bros social online but not irl 😭/hj i also kinda relate to taph,bludude, and Sideswipe (Rid15)
+
+ 
