@@ -3,7 +3,7 @@ UPDATED!!
 🦢| ⊹ ࣪ ˖ Rubes/Star ᯓᡣ𐭩 She/Her or They/Them ˚₊‧꒰ა ♱ ໒꒱ ‧₊ || Dont be freaky unless you're joking. But if youre saying dirty jokes alot around me then stop-
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆₊ °✦ ‧ ‧ ₊ ˚✧⁺˚⋆｡ °✩₊˖⁺‧₊˚♡˚₊‧⁺˖
 Fandoms i am currently in: Dream game,Blocktales,Ninjago,Forsaken,Transformers,and Friday night funkin
-
+Phighting
 I am a "Teenager" Will not use the term minor because its overused and people made it sound overly weird 😒 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡⋆₊ °✦ ‧ ‧ ₊ ˚✧⁺˚⋆｡ °✩₊˖⁺‧₊˚♡˚₊‧⁺˖
 If i do not answer you on Ponytown means i may be afk,drawing, or i was called by my parents.
